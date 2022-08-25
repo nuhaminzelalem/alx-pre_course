@@ -1,1 +1,1 @@
-This is my time ican win
+This is my time to learn
